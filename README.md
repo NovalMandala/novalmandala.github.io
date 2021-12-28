@@ -1,0 +1,2 @@
+# novalmandala.github.io
+Latihan
